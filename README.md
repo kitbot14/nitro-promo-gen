@@ -1,7 +1,7 @@
-🆘 Support : https://discord.gg/bztshop
+🆘 Support : https://discord.gg/ninjamod
 
 
-💸 PayPal : https://paypal.me/AntoineNova
+💸 PayPal : https://paypal.me/lenny69140
 
 -----------------------------------------------
 
